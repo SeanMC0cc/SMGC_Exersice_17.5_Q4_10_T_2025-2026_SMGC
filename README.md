@@ -1,0 +1,1 @@
+# SMGC_Exersice_17.5_Q4_10_T_2025-2026_SMGC
